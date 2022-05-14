@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @oSekhmet
+- 👋 Hi, I’m Pedro
 - ❌ Yep, nothing here
 - 🎲 Studying game design and trying to survive
 - 👀 I’m interested in anime and games :)
